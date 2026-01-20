@@ -25,9 +25,10 @@ Per rendere il tuo ambiente caldo e accogliente.
 In questa sezione sono presenti i lavori di design e pareti attrezzate.
 * [👉 [Guarda le foto](https://drive.google.com/drive/folders/1ooN42yUke18hrsIgp_1Mg3Ogo-a7ZoBS?usp=drive_link)]
 
-### 5. Pareti con Effetti materici e deorativi
+### 5. Pareti con Effetti Materici e Decorativi
 In questa sezione sono presenti lavori che risaltano l'effetto estetico di particolari pareti.
 * [👉 [Guarda le foto](https://drive.google.com/drive/folders/1bT7yeaO8420nkxUGmyQwZiv4bkS_zTxQ?usp=drive_link)]
+  
 ---
 
 ## 📞 Contatti
