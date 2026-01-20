@@ -16,15 +16,17 @@ In questa sezione sono presenti i lavori di design e illuminazione integrata.
 Per rendere il tuo ambiente unico.
 * **Dettagli:** 
 * [👉 [Guarda le foto](https://drive.google.com/drive/folders/15-UMyTgm420RnpWRTLUaneDFHRnrD3DI?usp=drive_link)]
+
+### 3. Parquet e Pavimenti in SPC
+Per rendere il tuo ambiente caldo e accogliente.
+* [👉 [Guarda le foto](https://drive.google.com/drive/folders/1GipPXyrgevYMuHTytPBOIENbyXTGiI7j?usp=sharing)]
 ---
-
-
 
 ## 📞 Contatti
 Hai un progetto in mente? Contattami per un sopralluogo gratuito.
 
-* 📱 **Telefono:** [+393381705932](tel:+391234567890)
-* 📧 **Email:** [decoriedecori@alice.it](mailto:tuaemail@esempio.com)
+* 📱 **Telefono:** [+393381705932]
+* 📧 **Email:** [decoriedecori@alice.it]
 * 📍 **Zona operativa:** Enna e provincia
 
 ---
