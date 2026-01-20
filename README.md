@@ -2,6 +2,8 @@
 ##  *DECORI & DECORI TINTEGGIATURE di Francesco Mazzara*
 
 Benvenuti nel mio portfolio professionale. Qui potete visionare alcune delle mie realizzazioni recenti.
+# Presentazione e servizi offerti #
+* [👉 [Clicca qui](https://docs.google.com/document/d/1NJP_GZvwRMw0t1YxaEf1KEFZmYYhpwcG/edit?usp=sharing&ouid=106547178630138184012&rtpof=true&sd=true)]
 
 ---
 
