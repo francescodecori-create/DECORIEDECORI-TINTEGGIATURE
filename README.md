@@ -1,4 +1,5 @@
-# 🛠️ Catalogo Lavori Cartongesso - [DECORI & DECORI TINTEGGIATURE di Francesco Mazzara]
+# 🛠️ Catalogo Lavori Cartongesso - Effetti decorativi - Parquet - 
+DECORI & DECORI TINTEGGIATURE di Francesco Mazzara]
 
 Benvenuti nel mio portfolio professionale. Qui potete visionare alcune delle mie realizzazioni recenti.
 
