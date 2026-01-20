@@ -55,8 +55,8 @@ In questa sezione sono presenti lavori che risaltano l'effetto estetico di parti
 ## 📞 Contatti
 Hai un progetto in mente? Contattami per un sopralluogo gratuito.
 
-* 📱 **Telefono:** [+393381705932]
-* 📧 **Email:** [decoriedecori@alice.it]
+* 📱 **Telefono:** [+393381705932](tel:+393381705932)
+* 📧 **Email:** [decoriedecori@alice.it](mailto:decoriedecori@alice.it)
 * 📍 **Zona operativa:** Enna e provincia
 
 ---
